@@ -1,5 +1,9 @@
 # Sprunked Game: Play Sprunki Incredibox Mod Game Online
 
+[Play Sprunked Now!](https://apkitech.com/sprunked/)
+
+![image](https://github.com/user-attachments/assets/95d54a15-208d-4615-b3e8-4305e3bf5808)
+
 ## What is Sprunked?
 
 Discover the enchanting world of **Sprunked**, a captivating game that blends the best elements of **Sprunki Incredibox**. With our innovative scratch-based gameplay, you'll have the power to create extraordinary music like never before. Simply scratch the surface to uncover hidden sounds and effects, and watch as your musical vision takes shape. Let your creativity soar and compose unforgettable melodies that will amaze your friends and family.
