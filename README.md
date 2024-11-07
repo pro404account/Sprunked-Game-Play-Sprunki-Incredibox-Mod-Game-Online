@@ -1,6 +1,6 @@
 # Sprunked Game: Play Sprunki Incredibox Mod Game Online
 
-[Play Sprunked Now!](https://apkitech.com/sprunked/)
+## [Play Sprunked Now!](https://apkitech.com/sprunked/)
 
 ![image](https://github.com/user-attachments/assets/95d54a15-208d-4615-b3e8-4305e3bf5808)
 
